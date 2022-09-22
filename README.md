@@ -1,0 +1,1 @@
+# FaridMehdiyev.github.io
